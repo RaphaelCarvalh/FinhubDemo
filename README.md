@@ -47,3 +47,4 @@ O software é fornecido "no estado em que se encontra", sem garantias de qualque
 
 Todos os direitos autorais são reservados. Este software é protegido por direitos autorais e outras leis de propriedade intelectual. Nenhuma parte deste software pode ser reproduzida, distribuída, ou exibida publicamente sem permissão explícita dos detentores dos direitos autorais.
 
+Entre em contado para mais detalhes. Email:. devone.r8@gmail.com
